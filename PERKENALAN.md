@@ -1,2 +1,1 @@
-NAMA: Azmii Maulawiy Said
-NRP: 5053241024
+Azmii Maulawiy Said - 5053241024
